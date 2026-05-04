@@ -1,4 +1,4 @@
-<h1>Anti-Tesla</h1>
+<h1>Anti Musk, Trump &amp; Sycophants</h1>
 <h2><b>BMW</b> is fast, <b>Ferrari</b> is faster, <b>tesla</b> is fascist.</h2>
 
 The original Tesla was a bright, giving, caring man. Which explains why he died penniless. He wasn't ruthless like
